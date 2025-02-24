@@ -2,7 +2,8 @@
 
 ## Final result
 
-YouTube: [Ladies Irrational - Famous Dex (feat. Suno) | AI Cover](https://youtu.be/ZHc1tSfek4A)
+- YouTube: [Ladies Irrational - Famous Dex (feat. Suno) | AI Cover](https://youtu.be/ZHc1tSfek4A)
+- Odysee (decentralized video hosting platform built on the LBRY blockchain): [Ladies Irrational - Famous Dex (feat. Suno) | AI Cover](https://odysee.com/@ebolblga:5/ladies-irrational:0)
 
 ## Chapter 1. Prelude.
 
